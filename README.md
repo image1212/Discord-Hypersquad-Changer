@@ -1,2 +1,2 @@
 # Discord-Hypersquad-Changer
-L
+- Don't use this because it's sex. LOL
